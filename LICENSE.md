@@ -1,4 +1,4 @@
-#  
+#  updated oil empire Script is the best oil empire Script, featuring one-hit kill and esp. Safe and powerful for all your needs.
 
 
 
